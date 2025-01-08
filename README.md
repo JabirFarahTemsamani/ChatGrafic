@@ -1,0 +1,1 @@
+Prat obligatoria Xat grafic
