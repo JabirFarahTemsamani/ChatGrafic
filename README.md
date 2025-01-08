@@ -1,1 +1,1 @@
-Prat obligatoria Xat grafic
+Prat obligatoria Xat gràfic
